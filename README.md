@@ -1,2 +1,1 @@
-READ THIS
-Modified
+Sección escrita por Maribel
